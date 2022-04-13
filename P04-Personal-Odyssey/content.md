@@ -31,11 +31,12 @@ Find two different job descriptions that interest you and craft your Personal Od
 
 Watch this to overcome common challenges to creating your Personal Odyssey
 
-
 Video coming soon
 
 
 # Share!
 Present your Personal Odyssey to 2-3 peers to get feedback.
 
-The more practice the better. Soon enough, telling your Personal Odyssey will feel sec
+The more practice the better. Soon enough, telling your Personal Odyssey will feel like second nature.
+
+# [Next session](https://github.com/Tech-at-DU/Outcomes-Prep-3/blob/master/P01-Cover-Letters/content.md)
