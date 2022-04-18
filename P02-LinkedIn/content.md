@@ -25,7 +25,7 @@ By now you should have a draft of your LinkedIn.
 
 Let's make it even better.
 
-Grade your LinkedIn using this [LinkedIn checklist](https://docs.google.com/document/d/1FD52I6tKofC1zpZyLWmX1BCQw5WDPkmzimvDSK_E_nM/edit#heading=h.gmdd0wc8bgfn)
+Grade your LinkedIn using this [LinkedIn checklist](https://docs.google.com/document/d/19X6NAO7M8IqGzBUP3ca3CmwCtY4WbkoyS-olrDRpwqw/edit#heading=h.3dy6vkm)
 
 Keep improving your LinkedIn until you check all the boxes.
 
